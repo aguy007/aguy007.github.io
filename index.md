@@ -1,2 +1,2 @@
 
-Security Blog From A WAN Veteran Is Also A Veteran
+Security Blog From A WAN Veteran
